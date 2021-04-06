@@ -1,1 +1,2 @@
-# LinNian-Chat-A.I
+# LinNian-Chat-A.I  
+先画饼Owo
